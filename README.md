@@ -1,2 +1,1 @@
-# hello-world
-Mein erster Versuch
+Auf der Suche nach einem Ausbildungsplatz! 
